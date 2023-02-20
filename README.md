@@ -1,2 +1,0 @@
-# Jimmy-Ampe
-Data Analyst
